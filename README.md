@@ -9,9 +9,18 @@
     <h2></h2>
     <img align="right" img src="https://64.media.tumblr.com/7b5d51e3c8aec4f5627c4ec02e9c8274/d8b8c002e6e81e4c-ca/s250x400/0a216467f9a89a46fae78a177cbe00efe8a4b5f4.gifv" width="20%" height="auto">‎ 
     <p align="center"> remaking github
-    <br> txt
+   <br> phones are placeholders rn
         <br> txt
             <br> txt
                 <br> txt               
+       <p>
+    <img align="left" img src="https://64.media.tumblr.com/7b5d51e3c8aec4f5627c4ec02e9c8274/d8b8c002e6e81e4c-ca/s250x400/0a216467f9a89a46fae78a177cbe00efe8a4b5f4.gifv" width="20%" height="auto">
+          
+<p align="center"> txt
+    <br> txt
+        <br> txt
+            <br> txt
+                <br> txt      
 <br>
-  <img src="https://64.media.tumblr.com/737dd24773577988b3d8c7346533d9cd/076f188771485cc2-5d/s2048x3072/f8ba50593c5c16800d1839ddfba06b131692992e.gifv" width="80%" height="auto">
+    <h2></h2>
+<a href="https://spamware.straw.page/">strawpage</a> ⠀⠀ <a href="https://big-shot.atabook.org">atabook</a> ⠀⠀ <a href="https://artfight.net/~BlGSHOT">artfight</a>

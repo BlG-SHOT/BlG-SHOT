@@ -7,7 +7,7 @@
   <p>   <img align="right" src="https://i.postimg.cc/QN12G0VH/aaa.png" width="50%" height="auto">
     <h2></h2>
      
- <p>     <img align="right" img src="https://64.media.tumblr.com/7b5d51e3c8aec4f5627c4ec02e9c8274/d8b8c002e6e81e4c-ca/s250x400/0a216467f9a89a46fae78a177cbe00efe8a4b5f4.gifv" width="20%" height="auto">‎ 
+ <p>     <img align="right" img src="https://i.postimg.cc/TYP0Vvh7/cat-gh0ul-01.png" width="20%" height="auto">‎ 
     <p align="left"> <ins><b>remaking</b></ins>
    <br> phones are placeholders rn
         <br> how the fuck did i manage to move the image there im trying to just format the text
@@ -16,11 +16,13 @@
    <br>
   <p>    <img align="left" img src="https://64.media.tumblr.com/7b5d51e3c8aec4f5627c4ec02e9c8274/d8b8c002e6e81e4c-ca/s250x400/0a216467f9a89a46fae78a177cbe00efe8a4b5f4.gifv" width="20%" height="auto">
           
-<p align="right"> txt txt txt txt txt txt
+<p align="right"> 
     <br> txt txt txt txt txt txt
         <br> txt txt txt txt txt txt
             <br> txt txt txt txt txt txt
-                <br> txt txt txt txt txt txt      
+                <br> txt txt txt txt txt txt
+   <br> txt txt txt txt txt txt
+   
 <br>
    <br>
    <br>

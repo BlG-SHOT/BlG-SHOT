@@ -1,7 +1,7 @@
    <div align="center">
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Press+Start+2P&size=16&pause=1700&color=CD5836&vCenter=true&multiline=true&width=600&height=40&lines=If+you+really+want+to+see+me%2C" alt="Typing SVG" /></a>
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Press+Start+2P&size=16&pause=1650&color=E7B931&vCenter=true&multiline=true&width=600&height=40&lines=%E3%80%80%E3%80%80%E3%80%80%E3%80%80%E3%80%80%E3%80%80%E3%80%80%E3%80%80%E3%80%80check+the+papers+and+the+tv!" alt="Typing SVG" /></a>
-     <br>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Press+Start+2P&size=16&pause=1000&color=CD5836&vCenter=true&width=600&height=40&lines=If+you+really+want+to+see+me%2C" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Press+Start+2P&size=16&pause=1700&color=E7B931&center=true&vCenter=true&width=600&height=40&lines=%E2%80%8B%E2%80%8B%E2%80%8B%E2%80%8B%E2%80%8B%E2%80%8B%E2%80%8B%E2%80%8B%E2%80%8B%E2%80%8B%E2%80%8B%E2%80%83%E2%80%83%E2%80%83%E2%80%83%E2%80%83+%E2%80%83%E2%80%8B%E2%80%8Bcheck+the+papers%2C+and+the+tv!" alt="Typing SVG" /></a>
+      <br>
    REMAKING GITHUB  i dont know hwat im doing.  Help
     <br>
   <img src="https://i.postimg.cc/DyZL916V/G2-O6-XSEbo-AAKBN01.png" width="40%" height="auto">

@@ -7,7 +7,7 @@
   <p>   <img align="right" src="https://i.postimg.cc/QN12G0VH/aaa.png" width="50%" height="auto">
     <h2></h2>
      
- <p>     <img align="right" img src="https://i.postimg.cc/KjTMNQSN/cat-gh0ul-01.png" width="20%" height="auto">‎ 
+ <p>     <img align="right" img src="https://i.postimg.cc/KjTMNQSN/cat-gh0ul-01.png" width="22%" height="auto">‎ 
     <p align="left"> <ins><b>remaking</b></ins>
    <br> phones are placeholders rn
         <br> how the fuck did i manage to move the image there im trying to just format the text
@@ -24,7 +24,5 @@
    <br> txt txt txt txt txt txt
    
 <br>
-   <br>
-   <br>
    <br>
 <a href="https://spamware.straw.page/">strawpage</a> ⠀⠀ <a href="https://big-shot.atabook.org">atabook</a> ⠀⠀ <a href="https://pronouns.cc/@bigshot">pronounscc</a> ⠀⠀ <a href="https://artfight.net/~BlGSHOT">artfight</a>

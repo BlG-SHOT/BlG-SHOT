@@ -1,6 +1,8 @@
-   <div align="center">
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Press+Start+2P&size=16&pause=1000&color=CD5836&vCenter=true&width=600&height=40&lines=If+you+really+want+to+see+me%2C" alt="Typing SVG" /></a>
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Press+Start+2P&size=16&pause=1700&color=E7B931&center=true&vCenter=true&width=600&height=40&lines=%E2%80%8B%E2%80%8B%E2%80%8B%E2%80%8B%E2%80%8B%E2%80%8B%E2%80%8B%E2%80%8B%E2%80%8B%E2%80%8B%E2%80%8B%E2%80%83%E2%80%83%E2%80%83%E2%80%83%E2%80%83+%E2%80%83%E2%80%8B%E2%80%8Bcheck+the+papers%2C+and+the+tv!" alt="Typing SVG" /></a>
+
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Press+Start+2P&size=16&pause=1000&color=CD5836&vCenter=true&width=600&height=40&lines=If+you+really+want+to+see+me%2C" alt="If you really want to see me," />
+   <p align="right">
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Press+Start+2P&size=16&pause=1700&color=E7B931&center=true&vCenter=true&width=600&height=40&lines=%E2%80%8B%E2%80%8B%E2%80%8B%E2%80%8B%E2%80%8B%E2%80%8B%E2%80%8B%E2%80%8B%E2%80%8B%E2%80%8B%E2%80%8B%E2%80%83%E2%80%83%E2%80%83%E2%80%83%E2%80%83+%E2%80%83%E2%80%8B%E2%80%8Bcheck+the+papers%2C+and+the+tv!" alt="check the papers, and the tv!" /></a>
+      <p align="center">
       <br>
    REMAKING GITHUB  i dont know hwat im doing.  Help
     <br>

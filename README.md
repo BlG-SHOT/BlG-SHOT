@@ -29,7 +29,7 @@
    <br>
       <br>
          <br>
-⠀⠀⠀⠀<a href="https://spamware.straw.page/">strawpage</a> ⠀⠀ <a href="https://big-shot.atabook.org">atabook</a> ⠀⠀ <a href="https://pronouns.cc/@bigshot">pronounscc</a> ⠀⠀ <a href="https://artfight.net/~BlGSHOT">artfight</a>
+⠀⠀⠀⠀⠀⠀⠀⠀ <a href="https://spamware.straw.page/">strawpage</a> ⠀⠀ <a href="https://big-shot.atabook.org">atabook</a> ⠀⠀ <a href="https://pronouns.cc/@bigshot">pronounscc</a> ⠀⠀ <a href="https://artfight.net/~BlGSHOT">artfight</a>
 <p>
    <p align="left"> 
 ⠀⠀⠀ <img src="https://i.postimg.cc/Nf7WCcxV/stamp.png" width="auto" height="auto"> <img src="https://i.postimg.cc/5NCtX6bx/stamp-(3).png" width="auto" height="auto"> <img src="https://i.postimg.cc/ydgML3fx/stamp-(1).png" width="auto" height="auto"> <img src="https://i.postimg.cc/650mLh9Y/stamp-(2).png" width="auto" height="auto">

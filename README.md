@@ -19,11 +19,11 @@
         <br> <ins><b>dni / byi stuff</b></ins>
             <br> > <a href="https://dni-criteria.carrd.co">basic dni</a>
    <br> > pro/darkshippers get perm hidden
-   <br> > please don't friend me if ur 16 or under <:^)
+   <br> > please don't friend me if ur 16 or under, i'd rather be friends with people near my age
    <br> > otherwise i block freely
       
    <p align="center">
-⠀⠀⠀ ⠀⠀<a href="https://spamware.straw.page/">strawpage</a>⠀⠀<a href="https://big-shot.atabook.org">atabook</a>⠀⠀<a href="https://pronouns.cc/@bigshot">pronounscc</a>⠀⠀<a href="https://artfight.net/~BlGSHOT">artfight</a>
+⠀⠀⠀ ⠀<a href="https://spamware.straw.page/">strawpage</a>⠀⠀<a href="https://big-shot.atabook.org">atabook</a>⠀⠀<a href="https://pronouns.cc/@bigshot">pronounscc</a>⠀⠀<a href="https://artfight.net/~BlGSHOT">artfight</a>
 <p>
    <p align="center"> 
 ⠀  ⠀<img src="https://i.postimg.cc/Nf7WCcxV/stamp.png" width="12%" height="auto"> <img src="https://i.postimg.cc/5NCtX6bx/stamp-(3).png" width="12%" height="auto"> <img src="https://i.postimg.cc/ydgML3fx/stamp-(1).png" width="12%" height="auto"> <img src="https://i.postimg.cc/650mLh9Y/stamp-(2).png" width="12%" height="auto"> 

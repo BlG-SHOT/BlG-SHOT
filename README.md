@@ -14,13 +14,14 @@
        <br> > please don't copy my skins, inspo is fine
  <p>     <img align="right" img src="https://i.postimg.cc/KjTMNQSN/cat-gh0ul-01.png" width="20%" height="auto">‎ 
           
-<p align="center"> 
+<p align="left"> 
     <br>
         <br> <ins><b>dni / byi stuff</b></ins>
             <br> > <a href="https://dni-criteria.carrd.co">basic dni</a> , pro/darkshippers
    <br> > please don't friend me if ur 16 or under <:^)
    <br> > otherwise i block freely
-   
+      
+   <p align="center">
 <br>
    <br>
 ⠀⠀⠀⠀⠀ ⠀⠀<a href="https://spamware.straw.page/">strawpage</a>⠀⠀<a href="https://big-shot.atabook.org">atabook</a>⠀⠀<a href="https://pronouns.cc/@bigshot">pronounscc</a>⠀⠀<a href="https://artfight.net/~BlGSHOT">artfight</a>

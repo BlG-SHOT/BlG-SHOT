@@ -11,7 +11,7 @@
     <p align="right"> <ins><b>#1 rated salesman</b></ins>  ⠀    ⠀    ⠀     
         <br> > w2i, i'm usually offtab  ⠀    ⠀    ⠀ 
        <br> > don't be afraid to int !! i'm a <br> ⠀⠀⠀wuss and prob won't int first
-       <br> > please don't copy my skins, <br> ⠀⠀⠀some inspo is fine  ⠀    ⠀    ⠀ 
+       <br> > please don't copy my skins, <br> ⠀⠀⠀⠀⠀⠀some inspo is fine  ⠀    ⠀    ⠀ 
  <p>     <img align="right" img src="https://i.postimg.cc/KjTMNQSN/cat-gh0ul-01.png" width="20%" height="auto">‎ 
           
 <p align="left"> 

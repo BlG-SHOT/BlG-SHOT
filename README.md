@@ -23,7 +23,6 @@
    
 <br>
    <br>
-      <br>
 ⠀⠀⠀⠀⠀ ⠀⠀<a href="https://spamware.straw.page/">strawpage</a>⠀⠀<a href="https://big-shot.atabook.org">atabook</a>⠀⠀<a href="https://pronouns.cc/@bigshot">pronounscc</a>⠀⠀<a href="https://artfight.net/~BlGSHOT">artfight</a>
 <p>
    <p align="left"> 

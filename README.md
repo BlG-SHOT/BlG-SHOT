@@ -4,7 +4,7 @@
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Press+Start+2P&size=16&pause=1700&color=F4B357&center=true&vCenter=true&width=600&height=40&lines=%E2%80%8B%E2%80%8B%E2%80%8B%E2%80%8B%E2%80%8B%E2%80%8B%E2%80%8B%E2%80%8B%E2%80%8B%E2%80%8B%E2%80%8B%E2%80%83%E2%80%83%E2%80%83%E2%80%83%E2%80%83+%E2%80%83%E2%80%8B%E2%80%8Bcheck+the+papers%2C+and+the+tv!" alt="check the papers, and the tv!" />
 
-  <p>   <img align="right" src="https://i.postimg.cc/6prN6f9r/aaaa.png" width="55%" height="auto">
+  <p>   <img align="right" src="https://i.postimg.cc/6prN6f9r/aaaa.png" width="45%" height="auto">
     <h2></h2>
 
    <p>    <img align="left" img src="https://i.postimg.cc/02Cxhmf2/cat-gh0ul-02.png" width="25%" height="auto">

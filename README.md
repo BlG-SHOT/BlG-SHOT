@@ -19,7 +19,7 @@
         <br> <ins><b>dni / byi stuff</b></ins>
             <br> > <a href="https://dni-criteria.carrd.co">basic dni</a>
    <br> > pro/darkshippers get perm hidden
-   <br> > please don't friend me if ur 16 or under, i'd rather be friends with people near my age
+   <br> > please don't friend me if ur 16 or under, i'd rather be friends with people closer to my age
    <br> > otherwise i block freely
       
    <p align="center">

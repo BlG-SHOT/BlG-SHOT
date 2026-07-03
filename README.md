@@ -8,26 +8,24 @@
     <h2></h2>
 
    <p>    <img align="left" img src="https://i.postimg.cc/02Cxhmf2/cat-gh0ul-02.png" width="25%" height="auto">
-    <p align="right"> <ins><b>remaking</b></ins>
-        <br> txt txt txt txt txt txt
-       <br> txt txt txt txt txt txt
-       <br> txt txt txt txt txt txt
-       <br> txt txt txt txt txt txt
-       <br> txt txt txt txt txt txt
+    <p align="right"> <ins><b>#1 rated salesman</b></ins>
+        <br> > w2i, usually offtab
+       <br> > don't be afraid to int !! i'm a wuss and prob won't interact first
+       <br> > please don't copy my skins, inspo is fine
  <p>     <img align="right" img src="https://i.postimg.cc/KjTMNQSN/cat-gh0ul-01.png" width="20%" height="auto">‎ 
           
 <p align="center"> 
     <br>
       <br>
         <br> <ins><b>dni / byi stuff</b></ins>
-            <br> <a href="https://dni-criteria.carrd.co">basic dni</a> , pro/darkshippers
-   <br> please don't friend me if ur 16 or under <:^)
-   <br> otherwise i block freely
+            <br> > <a href="https://dni-criteria.carrd.co">basic dni</a> , pro/darkshippers
+   <br> > please don't friend me if ur 16 or under <:^)
+   <br> > otherwise i block freely
    
 <br>
    <br>
       <br>
-      <br>
+            <br>
 ⠀⠀⠀⠀⠀ ⠀⠀<a href="https://spamware.straw.page/">strawpage</a>⠀⠀<a href="https://big-shot.atabook.org">atabook</a>⠀⠀<a href="https://pronouns.cc/@bigshot">pronounscc</a>⠀⠀<a href="https://artfight.net/~BlGSHOT">artfight</a>
 <p>
    <p align="left"> 

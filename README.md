@@ -19,11 +19,10 @@
 <p align="center"> 
     <br>
       <br>
-        <br> txt txt txt txt txt txt
-            <br> txt txt txt txt txt txt
-                <br> txt txt txt txt txt txt
-   <br> txt txt txt txt txt txt
-   <br> txt txt txt txt txt txt
+        <br> <ins><b>dni / byi stuff</b></ins>
+            <br> <a href="https://dni-criteria.carrd.co">basic dni</a> , pro/darkshippers
+   <br> please don't friend me if ur 16 or under <:^)
+   <br> other than that, i block freely
    
 <br>
    <br>

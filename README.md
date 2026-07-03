@@ -18,7 +18,7 @@
     <br>
         <br> <ins><b>dni / byi stuff</b></ins>
             <br> > <a href="https://dni-criteria.carrd.co">basic dni</a>
-   <br> > pro/darkshippers go away
+   <br> > pro/darkshippers get perm hidden
    <br> > please don't friend me if ur 16 or under <:^)
    <br> > otherwise i block freely
       

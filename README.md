@@ -8,7 +8,7 @@
     <h2></h2>
 
    <p>    <img align="left" img src="https://i.postimg.cc/02Cxhmf2/cat-gh0ul-02.png" width="25%" height="auto">
-    <p align="right"> <ins><b>#1 rated salesman</b></ins>
+    <p align="right"> <ins><b>#1 rated salesman</b></ins>  ⠀    ⠀    ⠀     
         <br> > w2i, i'm usually offtab  ⠀    ⠀    ⠀ 
        <br> > don't be afraid to int !! i'm a wuss and prob won't int first
        <br> > please don't copy my skins, some inspo is fine

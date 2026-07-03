@@ -25,4 +25,5 @@
 ⠀⠀⠀⠀⠀ ⠀⠀<a href="https://spamware.straw.page/">strawpage</a>⠀⠀<a href="https://big-shot.atabook.org">atabook</a>⠀⠀<a href="https://pronouns.cc/@bigshot">pronounscc</a>⠀⠀<a href="https://artfight.net/~BlGSHOT">artfight</a>
 <p>
    <p align="left"> 
-⠀⠀⠀ <img src="https://i.postimg.cc/Nf7WCcxV/stamp.png" width="auto" height="auto"> <img src="https://i.postimg.cc/5NCtX6bx/stamp-(3).png" width="auto" height="auto"> <img src="https://i.postimg.cc/ydgML3fx/stamp-(1).png" width="auto" height="auto"> <img src="https://i.postimg.cc/650mLh9Y/stamp-(2).png" width="auto" height="auto">
+⠀⠀⠀ <img src="https://i.postimg.cc/Nf7WCcxV/stamp.png" width="auto" height="auto"> <img src="https://i.postimg.cc/5NCtX6bx/stamp-(3).png" width="auto" height="auto"> <img src="https://i.postimg.cc/ydgML3fx/stamp-(1).png" width="auto" height="auto"> <img src="https://i.postimg.cc/650mLh9Y/stamp-(2).png" width="auto" height="auto"> 
+<img align="right" src="https://i.postimg.cc/25GkstfW/tumblr-da222dc2ba56f11db3d85a68c1333fb8-f468c7e6-400.gif" width="auto" height="auto">

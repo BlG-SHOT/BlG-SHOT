@@ -26,4 +26,4 @@
 <p>
    <p align="left"> 
 ⠀⠀⠀ <img src="https://i.postimg.cc/Nf7WCcxV/stamp.png" width="auto" height="auto"> <img src="https://i.postimg.cc/5NCtX6bx/stamp-(3).png" width="auto" height="auto"> <img src="https://i.postimg.cc/ydgML3fx/stamp-(1).png" width="auto" height="auto"> <img src="https://i.postimg.cc/650mLh9Y/stamp-(2).png" width="auto" height="auto"> 
-<img align="right" src="https://i.postimg.cc/FsdNGZsN/APvvr7Fevxnmej-L835q0SSXtx60To-JRGJPMx-NAMT.png" width="25%" height="auto"> 
+<img align="right" src="https://i.postimg.cc/QdKMwmfy/tumblr-7b5d51e3c8aec4f5627c4ec02e9c8274-0a216467-250.gif" width="15%" height="auto"> 
